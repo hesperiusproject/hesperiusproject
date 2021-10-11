@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hesperiusproject
-- 🌱 I’m currently learning Violin!
+- 🌱 I’m currently learning Violin & studying Medicine 🩺!
 - 📫 How to reach me: Discord ~ Gio#4621
 
 <!---
